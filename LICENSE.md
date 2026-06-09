@@ -1,4 +1,4 @@
-#  
+#  Experience death ball like never before with updated Script for death ball, the #1 Script. Includes fly and auto-upgrade for unbeatable performance.
 
 
 
